@@ -4,8 +4,6 @@
 
 - 🌱 I’m currently learning **ML & DL**
 
-- 😄 Pronouns: She/her
-
 - 👯 I’m looking to collaborate with **other content creators**
 
 - 📫 How to reach me **areebamunir63@gmail.com**
