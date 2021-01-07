@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **areebamunir63@gmail.com**
 
-- ⚡ Fun fact **I love to do adventures**
+- ⚡ Fun fact **I love to do adventures 🚀**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
