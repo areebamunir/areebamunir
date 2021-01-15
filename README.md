@@ -1,6 +1,6 @@
 <h1 align="center">Hi 👋, I'm Areeba Munir</h1>
 
-- 🔭 I’m currently working on **RASA nlu platform**
+- 🔭 I’m currently working on **AI Chatbot**
 
 - 🌱 I’m currently learning **ML & DL**
 
