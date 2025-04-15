@@ -6,7 +6,7 @@
 
 - 👯 I’m looking to collaborate with **other content creators**
 
-- 📫 How to reach me **areebamunir63@gmail.com**
+- 📫 How to reach me **areebamunir115@gmail.com**
 
 - ⚡ Fun fact **I love to do adventures 🚀**
 
